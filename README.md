@@ -6,4 +6,4 @@ Resultados de nuestra investigación para el desarrollo de patines eléctricos D
 
 Posible incorporación de las baterías para un modelo slim
 
-![texto_alternativo](https://drive.google.com/open?id=0B9oXVgieMSK4V2tEeGNNcmpaS00)
+![texto_alternativo](http://imageshack.com/a/img922/3654/4i99n4.jpg)
